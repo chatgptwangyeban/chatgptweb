@@ -40,7 +40,7 @@
 3. 在输入框中描述你的需求，即可开始AI对话
 4. 支持多终端访问，随时随地在线使用
 
-👉 官方入口：[http://www.xn--chatgpt-m43ki6uov8cfl3azt1e.com](http://www.xn--chatgpt-m43ki6uov8cfl3azt1e.com)
+👉 官方入口：[https://banana.dk82.com/chatgpt-china-site.html](https://banana.dk82.com/chatgpt-china-site.html)
 
 ---
 
